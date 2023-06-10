@@ -26,7 +26,7 @@ Você pode me encontrar em outras plataformas e redes sociais:
 
 - [Website oficial](https://bendevoficial.com)
 - [Instagram](https://www.instagram.com/bendevoficial/) (Conta verificada)
-- [Twitter](https://twitter.com/bendevoficial) (Conta verificada)
+- [Twitter](https://twitter.com/bendevoficial) 
 - [Painel de conhecimento na Google](https://g.co/kgs/isdpBA)
 
 Fique à vontade para entrar em contato comigo para discussões, colaborações ou apenas para dizer olá!
